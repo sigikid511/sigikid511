@@ -1,4 +1,4 @@
-### ABOUT ME
+### ABOUT ME 📖 🥾
 <!-- This repo contains information about me. --!>
 7 years’ experience in finance & accountancy roles in the asset management and charity sectors.
 3 years’ experience in credit audit for regional bank. 
